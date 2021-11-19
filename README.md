@@ -1,2 +1,5 @@
-# boom-beach-frontlines-cheat-creator-codes-free-gems
-Boom Beach Frontlines free gems creator codes 2022 with cheat that work
+# Boom Beach Frontlines free gems creator codes 2022 with cheat that work
+
+Boom Beach Frontlines free gems creator codes 2022 with cheat that work - Once you reach a certain number of IQ points, the inspector role will be available. Inspectors are guests with special abilities; They can analyze and identify who may be the murderer. Their analysis takes three seconds to trigger a person, so their subject must remain completely stationary. Of course, letting everyone know you're an inspector means that the next killer will catch up with you. Any good killer doesn't want to be found, and an inspector should be a big threat to them. Very similar to inspectors, the role of vigilante is unlocked after a certain number of points. Unlike inspectors, vigilantes have the ability to kill killers. If used properly, guests have a chance to win. Unfortunately, killing a killer before other guests may immediately make them think that the vigilante is the killer. If a vigilante accidentally injures a completely innocent person, the vigilante will die. Boom Beach Frontlines Creator Codes list 2022
+
+<a href="https://watermod.icu/boom-beach-frontlines/">go here</a>
